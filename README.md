@@ -1,0 +1,6 @@
+- 👋 Hi, I’m flennn
+- 👀 I’m interested in codding minecraft plugins
+- 🌱 I’m currently learning Fabric modding
+- 📫 How to reach me @f.lnn on Discord
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i touch grass
